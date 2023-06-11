@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @AmbreMehr
-- 🌱 I’m currently learning Dev, Video games, Cybersecurity, Network
+- 🌱 I’m currently learning Dev, Cybersecurity, Network
 - 💞️ I’m looking to collaborate on School project or things that interest me
 - 📫 You can reach me by email
